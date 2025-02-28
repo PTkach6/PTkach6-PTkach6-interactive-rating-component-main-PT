@@ -1,0 +1,1 @@
+# PTkach6-PTkach6-interactive-rating-component-main-PT
